@@ -57,7 +57,6 @@
     <p>Might irritate you, it is not intentional.<p>
     <p>Often apprehensive with friendships.</p>
     <p>I am not afraid to tell you i don't like something.</p>
-    <p>I prefer acquaintances and my friends text me first, but i will try to if it's needed.</p>
     <p>Generalised Anxiety Disorder.</p>
     <p>Manic episodes can happen if lonely for days.</p>
     <p>Mood swings, this includes being snappy.</p>
