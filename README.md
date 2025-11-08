@@ -70,7 +70,23 @@
 <summary><ins>⚠️ Do Not Befriend ⚠️</ins></summary>
 
 <div align="center">
-   <p>[WORK IN PROGRESS]</p>
+  <p>Under 12 years old.<p>
+  <p>Homophobic, Racist, Pedophiles.</p>
+  <p>Proshippers/Darkshippers that do not want to change in the future (as i'm aware it may take time).</p>
+  <p>Looks down on straight people such as myself.</p>
+  <p>Liars.</p>
+  <p>Bullies children and/or the elderly for fun.</p>
+  <p>Plays the victim.</p>
+  <p>Stubborn.</p>
+  <p>Close minded.</p>
+  <p>Competitive over everything.</p>
+  <p>Not willing to know the full story and will just assume.</p>
+  <p>Judgemental.</p>
+  <p>Boundaries aren't listened to.</p>
+  <p>Showing affection and love = that i want to be in a relationship with you.</p>
+  <p>Plans to use me for something.</p>
+  <p>Resistant to make time for your friends (excluding if you're forgetful).</p>
+  <p>Is another selfshipper with Twilight Sparkle, this makes me uncomfortable.</p>
 </div>
 </details>
 <br>
