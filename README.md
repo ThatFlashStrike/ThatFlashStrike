@@ -7,7 +7,7 @@
 ![Visitor Badge](https://vbr.nathanchung.dev/badge?page_id=ThatFlashStrike.ThatFlashStrike)
 
 <p align="center"> 
-<img src="https://github.com/ThatFlashStrike/ThatFlashStrike/blob/main/king_evaen.png" alt="👑 King Evaen 👑" width="500" />
+<img src="https://github.com/ThatRoyalBeast/ThatRoyalBeast/blob/main/king_evaen.png" alt="👑 King Evaen 👑" width="500" />
 <br>
   <small><b>"𝔗𝔥𝔢 𝔐𝔞𝔰𝔱𝔢𝔯 𝔬𝔣 𝔗𝔥𝔦𝔰 ℭ𝔞𝔰𝔱𝔩𝔢."</b></small>
 
