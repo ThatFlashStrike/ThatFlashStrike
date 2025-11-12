@@ -144,8 +144,6 @@
 </details>
 
 <br>
-<h1> WORK IN PROGRESS </h1>
 <p align="center">
-  <img src="https://lorcanaplayer.com/wp-content/uploads/2025/08/Beast-Gracious-Prince-Enchanted-Lorcana-Player.jpg" width="300" />
-  <img src="https://cdn.dreamborn.ink/images/en/cards/007-136" width="300" />
+  <img src="https://www.pngall.com/wp-content/uploads/5/Beauty-And-The-Beast-Emma-Watson-Movie-PNG-File-Download-Free.png" width="500" />
 </p>
