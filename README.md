@@ -74,8 +74,8 @@
 
 <div align="center">
   <p>Under 12 years old.<p>
-  <p>Homophobic, Racist, Pedophiles.</p>
-  <p>Proshippers/Darkshippers that do not want to change in the future (as i'm aware it may take time).</p>
+  <p>Homophobic, Racist, Pedophiles, Zoophiles.</p>
+  <p>Proshippers/Darkshippers that do not want to change in the future (i'm fully aware it may take time, and that's okay).</p>
   <p>Looks down on straight people such as myself.</p>
   <p>Liars.</p>
   <p>Bullies children and/or the elderly for fun.</p>
