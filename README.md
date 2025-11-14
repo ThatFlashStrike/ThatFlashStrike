@@ -123,7 +123,8 @@
   <summary><ins>Games</ins></summary>
 
   <div align="center">
-    <p>[WORK IN PROGRESS]</p>
+    <p>Too many to name, i've played over 400 games in my lifetime.</p>
+    <p>I do have favourites, in order: The Elder Scrolls V: Skyrim, Far Cry 5, The Darkness II, Dishonored, Kingdom Two Crowns, Red Dead Redemption (all games), Ark: Survival Evolved, Resident Evil , League of Legends, Assassins Creed, Jurassic World Evolution 2, Grand Theft Auto, Dead Island, Middle-Earth: Shadow of Mordor, Dragon Age, LEGO® Jurassic World, Devil May Cry, Geometry Dash, Sky: Children Of The Light, WolfQuest: Anniversary Edition, Elden Ring, Van Helsing, Dark Souls, Super Smash Bros </p>
   </div>
 </details>
 
